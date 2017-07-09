@@ -1,2 +1,8 @@
 # hello-world
-new repository
+
+
+Hi guys, I'm listening to Metallica now 
+.
+.
+.
+idk what else
